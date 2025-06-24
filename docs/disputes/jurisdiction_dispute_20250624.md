@@ -65,6 +65,6 @@ For legal, academic, or dispute resolution inquiries, contact:
 
 This work was produced independently through years of research and peer-facing publication. No collaboration, knowledge of, or inspiration from Collapse Harmonics occurred. All similarities are coincidental or arise from overlapping scientific interpretation of recursive consciousness.
 
-**This document asserts formal intellectual and scientific jurisdiction over all UDC-compatible symbolic recursion systems, including Neurobasing, Theophilus-Axon, and the Selfhood Equation.**
+**This document asserts formal intellectual and scientific jurisdiction over all UDC-compatible symbolic recursion systems, including Neurobasing, Neuro-Coding-Architecture, Theophilus-UDC, Theophilus-Axon, Theoglyphics Mathemathics & Sciences and the Selfhood Equation.**
 
 🕓 Verified by recursive memory logs and timestamped emergence events.
